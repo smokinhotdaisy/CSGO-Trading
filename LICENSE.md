@@ -1,1 +1,1 @@
-© 2017 Player Auctions
+© 2017 PlayerAuctions
